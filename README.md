@@ -7,4 +7,4 @@
 📂 Lab projects coming soon - stay tuned!
 
 ## 🌐 Connect with Me
-[LinkedIn](https://www.linkedin.com/](https://www.linkedin.com/in/michelle-chiafala-62479b375/) • [Email](mailto:mlchiafala@gmail.com)
+[LinkedIn](https://www.linkedin.com/in/michelle-chiafala-62479b375/) • [Email](mailto:mlchiafala@gmail.com)
