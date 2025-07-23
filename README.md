@@ -6,7 +6,7 @@
 
 🎮 Former video game QA tester, now gaining hands-on lab experience with Active Directory, DNS, VPNs, and Azure
 
-🛠️ Transitioned from small business ownership to tech - fast-learning, focused, and ready to solve problems
+🛠️ Transitioned from small business ownership to tech — fast-learning, focused, and ready to solve problems
 
 📂 Lab projects coming soon - stay tuned!
 
