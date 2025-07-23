@@ -8,7 +8,7 @@
 
 🛠️ Transitioned from small business ownership to tech — fast-learning, focused, and ready to solve problems
 
-📂 Lab projects coming soon - stay tuned!
+📂 Lab projects coming soon — stay tuned!
 
 ## 🌐 Connect with Me
 [LinkedIn](https://www.linkedin.com/in/michelle-chiafala-62479b375/) • [Email](mailto:mlchiafala@gmail.com)
